@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @vietnamboy091
+- 👀 I’m interested in pc building and tech. 
+- 🌱 I’m currently learning and making my exams. 
+- And i'm making my own video game with my friends. 
+- 💞️ I’m looking to collaborate on gamedeveloper, graphic designer and people who would like to work with us.
+- 📫 You can reach me via github, my Email or dm us over instagram. 
